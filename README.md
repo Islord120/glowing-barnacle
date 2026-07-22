@@ -1,2 +1,3 @@
 # glowing-barnacle
-i want to be ceating website for people in a legal way
+i want to ceate website for people in a legal way
+and help people in there businesses all around the world 
